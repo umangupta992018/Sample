@@ -5,7 +5,4 @@ ethhetkjetlks
 
 rgerjk
 
-fdbdfljkkhlj%%%%%%%%%%
-%%%%%%%%%%%%%%%%%%%
-
-~~~~~~~~~~~~~~~~~~
+fdbdfljkkhlj
