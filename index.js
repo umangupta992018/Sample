@@ -1,3 +1,4 @@
 
 print("A");
 
+print("B");
